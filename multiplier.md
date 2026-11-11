@@ -1,0 +1,7 @@
+## BUILD ONCE RUNS FOREVER
+
+#### IT'S BASICALLY SOMETHING YOU DO WITH MONEY GIVE YOU MORE MONEY WITHOUT BEING THERE .
+
+- Entrepreneurship
+- Financial Investment
+- So on
